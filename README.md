@@ -3,7 +3,7 @@ The only flash software in the world 🌎
 
 
 
-The only flash software in the world 🌎😏
+
 Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
 Transferable ⭐️ ⭐ Tradable ⭐ Not Splittable ⭐️ All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
